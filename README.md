@@ -1,2 +1,2 @@
 # Zaynja
-When I will understand this
+When I will understand it
